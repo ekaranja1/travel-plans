@@ -1,3 +1,3 @@
-# New York City 
+# Mombasa
 
-The Big Apple is a wonderful place full of energy and things to do. It is always a pleasure to visit this city at any time of hte year. 
+Beautiful East African Shoreline city, thats great to visit any time of the year. 
